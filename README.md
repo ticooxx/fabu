@@ -1,5 +1,3 @@
-# <h1>最新地址：<font color="red">收藏此页，很重要！！</font></h1>
-<h2><a target="_blank" href="https://66tv77.com">https://66tv77.com</a></h2>
-<h2><a target="_blank" href="https://smav99.com">https://smav99.com</a></h2>
-<h2><a target="_blank" href="https://sgav1.com">https://sgav1.com</a></h2> 
-<h1>收藏此页，很重要！！！</h1>
+<a href="https://66tvzyg.vip/" target="_blank" rel="nofollow">地址1</a>
+<a href="https://66tvzyg.xyz/" target="_blank" rel="nofollow">地址2</a>
+<a href="http://66tvzyg.fun" target="_blank" rel="nofollow">地址3</a>
